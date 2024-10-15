@@ -1,3 +1,3 @@
-Aleksander śMIALOWSKI 
-pAULIMA NIENAJADLO 
-TEMAT :
+Aleksander Śmiałowski
+Paulina Nienajadlo 
+TEMAT: Narazie brak 
